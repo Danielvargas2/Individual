@@ -1,3 +1,3 @@
-# hello world 
-# I love ✈️, 🌮, and 🕺
+# Daniel Vargas
+# I love ✈️, 🌮, and 🕺.
 
